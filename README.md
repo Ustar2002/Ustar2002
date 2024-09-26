@@ -1,7 +1,5 @@
 # Youseong JUNG (Ustar2002)
 
-![cover](https://user-images.githubusercontent.com/30228292/101366236-0e64fe80-38e8-11eb-999b-e6eb16ce777b.png)
-
 
 ## Cards
 
