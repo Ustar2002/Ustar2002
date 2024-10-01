@@ -1,5 +1,5 @@
 # Youseong JUNG (Ustar2002)
-
+![initial](https://www.notion.so/image/https%3A%2F%2Fprod-files-secure.s3.us-west-2.amazonaws.com%2F574e25bc-7974-4f28-be68-059b54fa3da6%2Fdc57b7d6-d006-4ff9-a6fb-142bf6fa6e0f%2FDALLE_2024-09-21_21.58.22_-_A_digital_portrait_of_a_person_based_on_the_style_of_the_left_image_featuring_a_smiling_person_with_short_neatly_styled_hair_wearing_glasses_and_d.webp?table=block&id=6b006883-2577-4c80-b99d-6de98086a87f&spaceId=574e25bc-7974-4f28-be68-059b54fa3da6&width=2000&userId=6aba2ae7-99e2-4c61-bf22-c06bdfd4a79d&cache=v2)
 
 ## Cards
 
